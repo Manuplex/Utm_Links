@@ -1,0 +1,1 @@
+The purpose of this project is to allow companies to create simple links that lead their campaigns in a fun, interesting, and truly engaging way for prospects. This approach represents my core philosophy on selling and advertising.
